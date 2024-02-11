@@ -1,2 +1,2 @@
 # Personnal-Website
-Hello this the repository of my personnall website https://sohibtabiche.com/
+Hello this the repository of my personnalll website https://sohibtabiche.com/
